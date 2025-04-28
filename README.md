@@ -3,7 +3,7 @@
 - 🌱 I’m ebaniy dolbayob
 - 💞️ I’m sosite moi hui
 - 📫 How to reach me: t.me/mc_c0rp
-- 😄 Pronouns: he
+- 😄 Pronouns: debil
 - ⚡ Fun fact: i'm eblan
 
 <!---
