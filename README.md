@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mc-c0rp
-- 👀 I’m koncheniy dauh
+- 👀 I’m koncheniy daun
 - 🌱 I’m ebaniy dolbayob
 - 💞️ I’m sosite moi hui
 - 📫 How to reach me: t.me/mc_c0rp
