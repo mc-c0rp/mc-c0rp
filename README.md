@@ -1,10 +1,4 @@
-- 👋 Hi, I’m @mc-c0rp
-- 👀 I’m koncheniy daun
-- 🌱 I’m ebaniy dolbayob
-- 💞️ I’m sosite moi hui
-- 📫 How to reach me: [telega nahui](https://t.me/mc_c0rp)
-- 😄 Pronouns: debil
-- ⚡ Fun fact: i'm eblan
+чиво нахуй
 
 <!---
 mc-c0rp/mc-c0rp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
