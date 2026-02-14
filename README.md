@@ -1,4 +1,4 @@
-я долбаеб извините
+да ты че базару нет
 
 <!---
 mc-c0rp/mc-c0rp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
